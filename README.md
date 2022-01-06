@@ -1,6 +1,6 @@
 # Breakfast
 
-This mornning i had fat free yoghurt with tropical granola mixed in for breakfast.
+This morning i had fat free yoghurt with tropical granola mixed in for breakfast.
 
 [Linkedin](https://www.linkedin.com/in/luke-kelly-062445223/)
 
